@@ -1,0 +1,2 @@
+# Chuo-i
+Chuỗi
